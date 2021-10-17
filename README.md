@@ -1,18 +1,11 @@
-# Hellbinds-Engine
+# HELLBIND'S ENGINE
 
-HOLY CRAP!
-WE WANTED TO MAKE THIS ONLY FOR A MOD LMAO!
-THEY FORCED US TO ADD IT INTO GITHUB
-help
+# if you wanna know how to build add weeks and stuff https://github.com/Slayuuy/Hellbinds-s-Engine/wiki/Building-Process
 
+# we used ke as base like mic'd up lmao
 
-yea .
+#  hope you enjoy
 
-clover they didnt - lightcat
+# lightcat made art
 
-smh it was for another mod - clovermite
-
-not anymore B) - lightcat
-
-
-cum
+# wat do i put here
